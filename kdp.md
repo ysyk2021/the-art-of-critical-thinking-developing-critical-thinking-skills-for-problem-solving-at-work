@@ -10,7 +10,6 @@ Throughout the book, we will explore key concepts and skills related to critical
 
 In today's rapidly changing and competitive workplace, the ability to think critically and solve complex problems is more important than ever before. By developing your critical thinking skills, you can become a more effective contributor to your organization and achieve greater success in your career. So let's begin our journey of exploring "The Art of Critical Thinking" and learn how to develop critical thinking skills for problem-solving at work.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
