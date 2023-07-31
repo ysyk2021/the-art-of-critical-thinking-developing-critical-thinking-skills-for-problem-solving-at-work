@@ -13,9 +13,6 @@ In today's rapidly changing and competitive workplace, the ability to think crit
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
-
-Here are 20 Amazon search keywords related to the book "The Art of Critical Thinking: Developing Critical Thinking Skills for Problem-Solving at Work":
-
 1. Critical thinking skills
 2. Problem-solving
 3. Workplace success
