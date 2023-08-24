@@ -1,5 +1,3 @@
-Developing Strategies for Engaging in Creative and Innovative Thinking
-=================================================================================
 
 In this chapter, we will explore strategies for developing creative and innovative thinking skills. Creative thinking involves generating unique ideas, while innovative thinking involves implementing these ideas to create value. By cultivating these skills, individuals can approach problem-solving at work with fresh perspectives and generate novel solutions. This chapter will discuss key strategies and techniques that promote creative and innovative thinking.
 

@@ -1,5 +1,3 @@
-Chapter 6: Communicating Effectively through Critical Thinking
-==============================================================
 
 In this chapter, we will explore strategies for communicating effectively through critical thinking. We will discuss the importance of presenting ideas and arguments clearly and persuasively, as well as respecting diverse perspectives and opinions.
 

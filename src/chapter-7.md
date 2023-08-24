@@ -1,5 +1,3 @@
-Chapter 7: Identifying and Addressing Biases
-============================================
 
 In this chapter, we will explore strategies for identifying and addressing biases in critical thinking. We will discuss the importance of recognizing cognitive biases and their effects on decision-making, as well as implementing techniques for minimizing bias and increasing objectivity.
 

@@ -1,5 +1,3 @@
-Implementing Techniques for Minimizing Bias and Increasing Objectivity
-====================================================================================================================
 
 In this chapter, we will explore strategies for identifying and addressing biases in the workplace by implementing techniques for minimizing bias and increasing objectivity.
 

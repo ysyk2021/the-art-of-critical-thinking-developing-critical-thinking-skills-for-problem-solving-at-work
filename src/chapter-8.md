@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Critical Thinking Performance
-=================================================================
 
 In this chapter, we will explore the importance of measuring and evaluating critical thinking performance in the workplace. We will discuss how data and metrics can be used to track progress and success, and provide insights into adjusting critical thinking strategies as needed.
 

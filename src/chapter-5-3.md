@@ -1,5 +1,3 @@
-Fostering a Culture of Experimentation and Risk-taking
-===============================================================================================================
 
 In this chapter, we will explore strategies for engaging in creative and innovative thinking in the workplace by fostering a culture of experimentation and risk-taking.
 

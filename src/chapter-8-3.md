@@ -1,5 +1,3 @@
-Adjusting Critical Thinking Strategies as Needed
-===================================================================================================================
 
 In this chapter, we will explore the importance of adjusting critical thinking strategies as needed based on performance metrics and feedback.
 

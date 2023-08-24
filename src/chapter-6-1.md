@@ -1,5 +1,3 @@
-Developing Strategies for Communicating Effectively through Critical Thinking
-=============================================================================================================================================
 
 In this chapter, we will explore strategies for communicating effectively through critical thinking in the workplace.
 

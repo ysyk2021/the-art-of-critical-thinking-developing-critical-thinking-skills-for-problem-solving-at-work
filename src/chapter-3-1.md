@@ -1,5 +1,3 @@
-Developing Strategies for Effective Problem-Solving
-===============================================================================================================
 
 In this chapter, we will explore strategies for effective problem-solving. We will discuss why developing effective problem-solving strategies is essential for critical thinking, and provide practical tips for overcoming obstacles and generating innovative solutions.
 

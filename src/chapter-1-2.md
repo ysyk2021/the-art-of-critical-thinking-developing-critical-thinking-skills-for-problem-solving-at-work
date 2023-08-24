@@ -1,5 +1,3 @@
-Perspectives on Critical Thinking Theory and Practice
-===========================================================================
 
 In this chapter, we will delve into the historical development of critical thinking theory and practice. Understanding the evolution of critical thinking helps us gain insights into its foundations, theories, and the influence of various scholars throughout history. We will explore significant milestones, key contributors, and the evolving perspectives that have shaped critical thinking as we know it today.
 

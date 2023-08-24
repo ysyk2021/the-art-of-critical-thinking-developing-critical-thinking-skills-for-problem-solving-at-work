@@ -1,5 +1,3 @@
-Recognizing the Fundamentals of Critical Thinking
-=================================================================================================================
 
 In this chapter, we will explore the fundamentals of critical thinking. We will discuss why developing a foundational understanding of critical thinking is essential for effective problem-solving and decision-making, and provide practical tips for recognizing the key components of critical thinking.
 

@@ -1,5 +1,3 @@
-Developing Strategies for Making Informed Decisions through Critical Thinking
-=============================================================================================================================================
 
 In this chapter, we will explore strategies for making informed decisions through critical thinking in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 4: Making Informed Decisions through Critical Thinking
-==============================================================
 
 In this chapter, we will explore strategies for making informed decisions through critical thinking. We will discuss the importance of analyzing data and information, as well as anticipating potential outcomes and consequences.
 

@@ -1,5 +1,3 @@
-Using Data and Metrics to Track Progress and Success
-=======================================================================================================================
 
 In this chapter, we will explore the importance of measuring and evaluating critical thinking performance and how to use data and metrics to track progress and success.
 

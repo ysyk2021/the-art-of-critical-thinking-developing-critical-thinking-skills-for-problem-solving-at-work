@@ -1,5 +1,3 @@
-Chapter 5: Engaging in Creative and Innovative Thinking
-=======================================================
 
 In this chapter, we will explore strategies for engaging in creative and innovative thinking in the workplace. We will discuss the importance of brainstorming and idea generation, as well as fostering a culture of experimentation and risk-taking.
 

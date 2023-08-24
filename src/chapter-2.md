@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Fundamentals of Critical Thinking
-==============================================================
 
 In this chapter, we will explore the fundamentals of critical thinking in the workplace. We will discuss the importance of identifying the skills and competencies required for effective problem-solving, as well as building strategies for developing critical thinking skills.
 

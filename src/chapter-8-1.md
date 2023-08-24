@@ -1,5 +1,3 @@
-Understanding the Importance of Measuring and Evaluating Critical Thinking Performance
-=========================================================================================================================================================
 
 In this chapter, we will explore the importance of measuring and evaluating critical thinking performance in the workplace.
 

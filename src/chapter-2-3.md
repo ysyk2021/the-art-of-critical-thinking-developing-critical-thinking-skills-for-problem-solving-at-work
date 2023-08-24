@@ -1,5 +1,3 @@
-Building Strategies for Developing Critical Thinking Skills
-===========================================================================================================================
 
 In this chapter, we will delve into the core principles and strategies that form the foundation of critical thinking. By understanding these fundamentals, you will be equipped with the necessary tools to develop and enhance your critical thinking skills, enabling you to approach problem-solving at work more effectively.
 

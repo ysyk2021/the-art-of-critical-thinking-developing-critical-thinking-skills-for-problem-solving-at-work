@@ -1,5 +1,3 @@
-Encouraging Brainstorming and Idea Generation
-========================================================
 
 In this chapter, we will explore the importance of brainstorming and idea generation in critical thinking for problem-solving at work. We will discuss the benefits of collaborative thinking, techniques to foster creativity, and strategies to encourage effective brainstorming sessions.
 

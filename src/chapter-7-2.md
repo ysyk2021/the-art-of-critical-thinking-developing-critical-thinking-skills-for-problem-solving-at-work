@@ -1,5 +1,3 @@
-Recognizing Cognitive Biases and Their Effects on Decision-Making
-===============================================================================================================
 
 In this chapter, we will delve into the crucial topic of biases and their impact on decision-making processes. We all possess cognitive biases, which are inherent tendencies to think and perceive information in specific ways. These biases can significantly influence our judgment, leading to flawed decision-making if left unrecognized and unaddressed.
 

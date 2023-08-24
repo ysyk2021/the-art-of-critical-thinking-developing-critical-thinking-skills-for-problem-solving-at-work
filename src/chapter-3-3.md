@@ -1,5 +1,3 @@
-Generating and Evaluating Potential Solutions
-=========================================================================================================
 
 In this chapter, we will explore strategies for developing effective problem-solving skills through generating and evaluating potential solutions in the workplace.
 

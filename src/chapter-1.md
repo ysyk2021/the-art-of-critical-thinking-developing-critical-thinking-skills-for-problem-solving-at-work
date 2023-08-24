@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Critical Thinking in the Workplace
-=============================================================
 
 In this chapter, we will introduce the concept of critical thinking and its importance in the workplace. We will also explore the historical perspectives on critical thinking theory and practice, as well as the challenges and opportunities that effective critical thinking can offer in the workplace.
 
