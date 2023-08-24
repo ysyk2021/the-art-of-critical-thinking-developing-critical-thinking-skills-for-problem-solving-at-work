@@ -1,5 +1,4 @@
 
-
 In this final chapter, we will summarize the key points discussed throughout the book and provide some additional insights into mastering the art of critical thinking in the workplace.
 
 The Importance of Critical Thinking for Personal and Organizational Success
